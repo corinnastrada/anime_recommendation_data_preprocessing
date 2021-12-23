@@ -2,8 +2,10 @@
 Data Management project 
 
 
-Cerabolini Aurora
 
-Strada Corinna
 
-Tritella Mirko
+
+
+
+
+Cerabolini Aurora- Strada Corinna- Tritella Mirko
